@@ -41,7 +41,7 @@
 
 <h1> <img src="https://telegra.ph/file/b8b53dd1163dd440bdaa5.jpg" width="70px" style="border-radius: 50%"> ᴄᴏɴᴛᴀᴄᴛ ᴍᴇ </h1>
 
-[<img src="https://te.legra.ph/file/3f6810f790713b26fe826.jpg" width="60px">](https://tg:) [<img src="https://telegra.ph/file/be434dc46537253ee214f.jpg" width="60px">](https://github.com/PRADHAN474) 
+[<img src="https://te.legra.ph/file/3f6810f790713b26fe826.jpg" width="60px">](https://tg:II_Darlo_II) [<img src="https://telegra.ph/file/be434dc46537253ee214f.jpg" width="60px">](https://github.com/PRADHAN474) 
 
 
 
